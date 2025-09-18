@@ -14,5 +14,5 @@ Este proyecto está explícitamente dirigido a entornos modernos y no soporta ve
 
 > **Edited Baileys By Ado**
 
-[☏](https://wa.me/50493732693)
+[☏](https://wa.me/50493374445)
 
